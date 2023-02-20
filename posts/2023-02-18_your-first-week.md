@@ -30,30 +30,19 @@ We had are arrival time set at 5pm. We arrived about 20 min early and waited in 
 
 ## Meeting Pam
 
-
 ![sda](C:\Users\adamb\Desktop\PXL_20230210_111101511.MP.jpg)
-
-
 
 ## Labor
 
 ![ ](C:\Users\adamb\Desktop\IMG_20230209_204938.jpg)
 
-
-
 ![ ](C:\Users\adamb\Desktop\IMG_20230209_210859.jpg)
 
-
-
 ![ ](C:\Users\adamb\Desktop\IMG_20230209_210914.jpg)
-
-
 
 ## When we first met
 
 ![s](C:\Users\adamb\Desktop\PXL_20230210_112142776.jpg)
-
-
 
 ## Room 619
 
@@ -63,10 +52,6 @@ We had are arrival time set at 5pm. We arrived about 20 min early and waited in 
 
 ## Getting you home
 
-
-
 ## Uncle Keegan
-
-
 
 ## Tummy Trouble
