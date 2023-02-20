@@ -12,7 +12,7 @@ Thursday morning, February 9th 2023, your Mom and I woke up around 11 am after a
 
 The nights leading up to your induction date she had experienced tremors almost like she was in shock for a few hours in the early morning. They would last for an hour or so and then subside but then repeat again the next night around the same time. 
 
-![ ](https://raw.githubusercontent.com/PR0M3TH3AN/Dear-Esther/main/images/IMG_20230209_113829.jpg)
+![ ](https://raw.githubusercontent.com/PR0M3TH3AN/Dear-Esther/main/images/IMG_20230209_113829.jpg?token=GHSAT0AAAAAAB6CK3DZMGK3OBAFBCBU2IP2Y7UA3RA)
 
 Thursday morning we went to our favorite brunch place down the street from our house on Glasgow Road called First Watch. We talked about you and what we were heading into. We had great peace. 
 
