@@ -1,3 +1,3 @@
-# A blog for my daughter Ester
+# A blog for my daughter Esther
 
 <3
